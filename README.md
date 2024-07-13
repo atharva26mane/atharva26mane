@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media.licdn.com/dms/image/D4D03AQECZ0qU1Hu0yQ/profile-displayphoto-shrink_800_800/0/1695533783907?e=2147483647&v=beta&t=cw4uZUGg3qwmAlPtc73-4sQ3eMidroN0dM3Iqmd7pac"  />
+
 
 ###
 
